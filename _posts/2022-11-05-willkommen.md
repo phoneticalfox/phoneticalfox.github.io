@@ -10,7 +10,7 @@ tags:
 ---
 # ¡Bienvenido!
 - I'm going to watch V for Vendetta now! lol
-<video controls>
-  <source src="/assets/images/vv.webm" type="video/vp8">
+<video width="853" height="480" controls>
+  <source src="/assets/images/vv.webm" type="video/webm">
     Your browser does not support HTML video.
 </video>
