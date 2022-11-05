@@ -57,7 +57,7 @@ plugins:
 
 author:
   name   : "phonetic"
-  avatar : "/assets/images/bio-photo.jpg"
+  avatar : "https://avatars.githubusercontent.com/u/101800764"
   bio    : "a person."
   links:
     - label: "Website"
