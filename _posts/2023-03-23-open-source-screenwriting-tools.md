@@ -1,5 +1,5 @@
 ---
-title: "Post: Open Source Screenwriting Tools with Mobile Support"
+title: "Post: Open Source Screenwriting Tools"
 excerpt_separator: "<!--more-->"
 categories:
   - blog
