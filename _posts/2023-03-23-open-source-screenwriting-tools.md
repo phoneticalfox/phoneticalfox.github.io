@@ -1,8 +1,5 @@
 ---
-layout: post
-title: Open Source Screenwriting Tools with Mobile Support
-author: postr
-date: 2023-03-23
+title: "Post: Open Source Screenwriting Tools with Mobile Support"
 excerpt_separator: "<!--more-->"
 categories:
   - blog
