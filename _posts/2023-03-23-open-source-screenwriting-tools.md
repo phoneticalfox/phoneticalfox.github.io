@@ -3,6 +3,13 @@ layout: post
 title: Open Source Screenwriting Tools with Mobile Support
 author: postr
 date: 2023-03-23
+excerpt_separator: "<!--more-->"
+categories:
+  - blog
+tags:
+  - neato
+  - things & stuff
+  - new
 ---
 
 As a screenwriter, finding the right tool to create, edit, and format your scripts is crucial. With the rise of mobile devices, it's important for screenwriting tools to offer mobile support. Luckily, there are several open source screenwriting tools that can be used on mobile devices. Here are some of the most popular options available: 
