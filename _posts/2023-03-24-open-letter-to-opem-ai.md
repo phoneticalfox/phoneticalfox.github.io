@@ -2,7 +2,13 @@
 layout: post
 title: "Open Letter to OpenAI: Enhancing DALL-E 2 with a Self-Hosted Image Search Engine"
 date: 2023-03-30
-categories: AI, Image Generation, Open Letter,
+excerpt_separator: "<!--more-->"
+categories: 
+    - Blog
+tags: 
+    - AI
+    - Image Generation
+    - Open Letter
 ---
 
 # an open letter
