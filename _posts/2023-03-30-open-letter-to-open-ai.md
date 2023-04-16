@@ -1,8 +1,7 @@
 ---
-layout: post
 title: "Open Letter to OpenAI: Enhancing DALL-E 2 with a Self-Hosted Image Search Engine"
-date: 2023-03-30
 excerpt_separator: "<!--more-->"
+date: 2023-03-30
 categories: 
     - Blog
 tags: 
