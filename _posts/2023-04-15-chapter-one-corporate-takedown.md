@@ -39,3 +39,16 @@ Ashley's eyes filled with tears, and she leaned over to kiss me. "I love you too
 
 In that moment, I knew that everything was perfect. I had Ash, our cozy ranch, and a peaceful life. I didn't need anything else.
 
+We spent the rest of the morning doing some yard work, planting some flowers and vegetables in our garden. It was hard work, but it was also a fun activity to do together. We talked and joked around as we worked, and it felt like time flew by.
+
+After we finished, we decided to take a break and relax on our front porch. We sat in our rocking chairs, enjoying the warm sun and the peaceful scenery of our ranch. It was a beautiful day, and we were grateful for it.
+
+As we sat there, I couldn't help but reflect on how much Ashley had changed my life. Before we met, I was working a dead-end job, living in a small apartment, and struggling to make ends meet. But since we fell in love, everything had changed.
+
+Ashley had a successful career as a lawyer, and her job allowed us to move to the countryside, where we could enjoy the peace and quiet. She was my rock, my support, and my inspiration. I didn't know where I would be without her.
+
+I looked over at Ashley, who was lost in thought, and smiled. I knew that whatever came our way, we would face it together. We were a team, and nothing could break us apart.
+
+As the sun began to set, we went back inside to make dinner. We cooked together, trying out a new recipe and having fun in the kitchen. We talked about our plans for the future, dreaming about the life we wanted to build together.
+
+It was a perfect day, and I knew that I was the luckiest person in the world to have Ashley by my side. Little did we know that our peaceful life was about to be turned upside down.
