@@ -31,3 +31,11 @@ I wrapped my arms around her, holding her close. “We’ll face whatever comes 
 We sat there for a while longer, holding each other until dawn. Despite the unease that lingered in the air, we were happy, we could always comfort each other.
 
 As the sun began to rise, we went back to bed, and Ashley held me close as I drifted off to sleep, safe in her arms. I knew that whatever was coming our way, we would face it together, and our love would be enough to get us through anything.
+
+The next day was Sunday, and Ashley and I went grocery shopping and ran some errands together. I was so preoccupied with spending as much time as possible with her before she would leave me for work in the morning that I almost forgot about the previous night.
+
+I was my usual extra clingy self, but Ash never seemed to really mind, instead she just called me adorable. She was always just extra affectionate to me, on those days. I could tell that she was feeling way better too.
+
+As we finished our errands, Ask took us out to the best restaurant ever. We had a blast playing arcade games and eating delicious food. I was so happy to be with her, and it felt like nothing could bring me down.
+
+She drove us home and the next thing I remember was her climbing into bed, I snuggled up to her and soon I was fast asleep in her arms.
