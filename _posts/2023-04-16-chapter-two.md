@@ -36,6 +36,6 @@ The next day was Sunday, and Ashley and I went grocery shopping and ran some err
 
 I was my usual extra clingy self, but Ash never seemed to really mind, instead she just called me adorable. She was always just extra affectionate to me, on those days. I could tell that she was feeling way better too.
 
-As we finished our errands, Ask took us out to the best restaurant ever. We had a blast playing arcade games and eating delicious food. I was so happy to be with her, and it felt like nothing could bring me down.
+As we finished our errands, Ash took us out to the best restaurant ever. We had a blast playing arcade games and eating delicious food. I was so happy to be with her, and it felt like nothing could bring me down.
 
 She drove us home and the next thing I remember was her climbing into bed, I snuggled up to her and soon I was fast asleep in her arms.
