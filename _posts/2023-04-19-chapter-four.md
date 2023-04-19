@@ -26,3 +26,17 @@ I replied nervously, "No, I'm not. My wife and I are just renting this place."
 "I'm sorry to inform you, but this property has been sold to a corporate interest. All current tenants have 24 hours to pack up their belongings and vacate the premises," the man said, his voice devoid of any emotion.
 
 My heart sank. I couldn't believe what I was hearing. I had grown to love this place, and the thought of leaving it behind was devastating. As the man handed me a piece of paper and walked away, I sat there on the swing, tears streaming down my face. My peaceful life had just been shattered, and I had no idea what to do next.
+
+Ashley arrived home from work to find me sitting on the couch, staring blankly at the wall. When she saw the look on my face, she immediately knew something was wrong.
+
+"What's going on, Sarah?" she asked, dropping her briefcase on the floor.
+
+I handed her the piece of paper I had received earlier and watched as her expression turned from confusion to anger.
+
+"They can't do this," she said firmly, her lawyer instincts kicking in. "We definitely have longer than 24 hours to vacate at the very least. I'm going to make some calls and see what we can do to fight this."
+
+I felt a sense of relief wash over me. It was comforting to have Ashley by my side, ready to fight for our home.
+
+"And as for whoever hurt you like this," Ashley continued, her voice softening, "they'll get what's coming to them. You don't have to face this alone, Sarah. We'll get through this together."
+
+Tears filled my eyes once again, but this time they were tears of gratitude. I knew that no matter what happened, I had Ashley by my side, and that was enough to give me hope for the future.
